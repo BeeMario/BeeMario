@@ -1,4 +1,4 @@
-### Hi there 👋
+### Wassup, this is me Bee Mario. I like making software and shit and i know vbscript, batch and html. Also i am a dumbass. There ya go, im too lazy to add more shit on to my profile's README.md, so there ya go
 
 <!--
 **BeeMario/BeeMario** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -13,4 +13,5 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- ass
 -->
