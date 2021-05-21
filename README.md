@@ -1,5 +1,4 @@
-### Wassup, this is me Bee Mario. I like making software and shit and i know vbscript, batch and html. Also i am a dumbass. There ya go, im too lazy to add more shit on to my profile's README.md, so there ya go. Also follow my friends @NTBeta and @NickPlays64
-
+### STOP POSTING ABOUT AMONG US! I'M TIRED OF SEEING IT! MY FRIENDS ON TIK TOK SEND ME MEMES, ON DISCORD IT'S FUCKING MEMES! I was in a server, right? And ALL OF THE CHANNELS were just among us stuff I-I showed my champion underwear to my girlfriend and t-the logo I flipped it and I said "hey babe, when the underwear is sus HAHA DING DING DING DING DING DING DING DI DI DING" I fucking looked at a trashcan and said "THAT'S A BIT SUSSY" I looked at my penis, I think of the astronauts helmet and I go "PENIS? MORE LIKE PENSUS" AAAAAAAAAAAAAAAAAA
 <!--
 **BeeMario/BeeMario** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
