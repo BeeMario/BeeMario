@@ -1,4 +1,4 @@
-### BeeMario/BeeMario is a special repository: its README.md will appear on your profile!
+### idk what to put here but having a profile README.md is nice
 <!--
 **BeeMario/BeeMario** is a ✨ _stupid_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
